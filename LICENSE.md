@@ -1,4 +1,4 @@
-# 
+# Sem banimento Vegas Pro para PC addons é o melhor Vegas Pro para PC addons com câmera lenta e edição por proxy. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
